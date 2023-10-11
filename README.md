@@ -1,1 +1,1 @@
-# Website In this website I created Vinayagar Chathurthi Celebrations.
+# In this website I created Vinayagar Chathurthi Celebrations.
